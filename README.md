@@ -1,0 +1,1 @@
+# ofarukyerkazan.github.io
